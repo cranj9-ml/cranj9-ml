@@ -1,4 +1,4 @@
-🎯 Data Scientist | Expertise in Financial Crimes & AML Analytics
+🎯 Data Scientist | Expertise in Financial Crimes, AML Analytics & Supply Chain AI
 
 👨‍💻 Master’s in Statistics - UIUC | Advanced Analytics & Scalable AI Solutions
 
